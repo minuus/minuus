@@ -1,9 +1,10 @@
 ##  Introduction
-- iam llll
+- iam a senior in Yeungnam University.
 ## career
 
 ## Links
 
+## interest 
 
 
 
